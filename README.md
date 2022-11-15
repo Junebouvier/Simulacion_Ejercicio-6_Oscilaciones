@@ -1,0 +1,1 @@
+# Simulacion_Ejercicio-6_Oscilaciones
